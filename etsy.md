@@ -11,7 +11,7 @@ permalink: /etsy/
 
 <h2>COMING SOON!</h2>
 
-Tuff Luv will be available on Etsy during mid-September.
+Tuff Luv will be available on Etsy during mid-October.
 
 Enter you email below and hit ENTER and I’ll send you an announcement the moment it is released.
 
