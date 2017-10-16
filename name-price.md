@@ -11,7 +11,7 @@ permalink: /price/
 
 <h2>COMING SOON!</h2>
 
-An eBook version of Tuff Luv will be available for name-your-own-price during mid-October!
+An eBook version of Tuff Luv will be available for name-your-own-price by the end of this week (Oct. 16-21)!
 
 Enter your email below and hit ENTER and I'll send you an announcement the moment it is released. 
 
