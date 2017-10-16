@@ -13,7 +13,7 @@ permalink: /etsy/
 
 Tuff Luv will be available on Etsy by the end of this week (Oct. 16-21)!
 
-Enter you email below and hit ENTER and I’ll send you an announcement the moment it is released.
+Enter you email below and hit ENTER and I’ll to receive an announcement the moment it is released.
 
 :-)
 
